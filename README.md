@@ -1,3 +1,3 @@
 # First Try
 
-It looks like some gs
+It looks like not too hard
